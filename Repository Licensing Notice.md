@@ -10,7 +10,7 @@ Licensing is determined by the applicable license notice accompanying the releva
 
 The works within the stated scope of the following directories are released under the **Absolute Free Poetry License (Anti-Monopoly)**:
 
-* `ANDRA SAYEKTI/`
+* `00-andra-sayekti`
 * `99. FINAL/`
 
 The applicable `LICENSE.md` located within each directory contains the complete terms governing those works.
@@ -45,7 +45,7 @@ Lisensi ditentukan berdasarkan pemberitahuan lisensi yang berlaku dan menyertai 
 
 Karya yang berada dalam cakupan direktori berikut dilepaskan berdasarkan **Lisensi Syair Bebas Mutlak (Anti-Monopoli)**:
 
-* `ANDRA SAYEKTI/`
+* `00-andra-sayekti`
 * `99. FINAL/`
 
 `LICENSE.md` yang berlaku di masing-masing direktori memuat ketentuan lengkap yang mengatur karya dalam cakupannya.
