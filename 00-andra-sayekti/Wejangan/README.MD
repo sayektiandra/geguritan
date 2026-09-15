@@ -1,0 +1,1 @@
+**Catatan:** Versi Wejangan sebaiknya menggunakan bahasa Jawa yang mudah dipahami masyarakat umum, termasuk yang awam dalam bahasa Jawa, dengan gaya bahasa sehari-hari atau ngoko bila sesuai. Bahasa Jawa tingkat tinggi dapat digunakan untuk versi kanonik utama atau alternatif.
