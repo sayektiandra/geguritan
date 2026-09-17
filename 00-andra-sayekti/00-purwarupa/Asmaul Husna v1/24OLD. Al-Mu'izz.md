@@ -1,0 +1,192 @@
+Asma'ul Husna nomor 24 adalah Al-Mu'izz (الْمُعِزُّ).
+Dalam bahasa Indonesia, Al-Mu'im diartikan sebagai Maha Memberikan Kemuliaan atau Maha Memuliakan.
+Mari kita bedah maknanya dengan bahasa santai agar langsung dipahami, Komandan:
+
+* Pemberi Mahkota Kehormatan: Al-Mu'izz artinya Allah adalah satu-satunya Zat yang berhak memberikan rasa hormat, wibawa, dan kemuliaan sejati kepada seorang manusia. Jika Allah sudah memuliakan seseorang, maka tidak ada satu pun hinaan atau fitnah dari manusia lain yang bisa menjatuhkan harga dirinya.
+* Kemuliaan karena Ketaatan: Allah memberikan kemuliaan ini bukan karena rupa atau harta, melainkan kepada hamba-Nya yang teguh menjaga integritas, kejujuran, dan ketakwaan di dalam hidupnya.
+* Dalam Sastra Jawa: Sifat ini sangat cocok dengan istilah "Gusti Ingkang Paring Kawibawan" atau "Ingkang Amisudha Luhur", yaitu Zat yang menuangkan pancaran wibawa dan keluhuran budi ke dalam diri manusia sehingga disegani oleh sesama makhluk (sinuba ing pakurmatan).
+
+Hubungannya dengan nomor 23 (Ar-Rafi'):
+Hubungan urutannya sangat kokoh, Komandan. Jika Ar-Rafi' fokus pada tindakan mengangkat posisi atau derajat kita ke tempat yang tinggi, maka Al-Mu'izz memberikan pancaran kemuliaan dan wibawa agar posisi tinggi tersebut dijaga dengan kehormatan yang sejati, bukan dengan kesombongan.
+
+
+# Draft
+
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Mugi kawula tansah, pinaringan kawibawan.
+Luhur budi lan manah, tuwuh saking kabecikan.
+Wibawa tanpa gumunggung, tanpa ngudi pangalembana.
+Mugi ajining gesang, dados pepadhang tumrap sesami.
+
+
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Mugi kawula tansah, sinuba ing pakurmatan.
+Luhur budi lan manah, dados dhasaring kamulyan.
+Wibawa tanpa gumunggung, adoh saking kasombongan.
+Mugi gesang kawula, kinurmatan ing kabecikan.
+
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Kasinungan kawibawan, sajroning kawengkur.
+Amrih wutuh ing martabat, amrih arum lan misuwur.
+Mugi kawulo tan sembrono, ngadhepi drajat kang linuhur.
+Mugi paring pitulung, amrih iman tan bakal lebur.
+
+# Draf -UR
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Kasinungan kawibawan, sajroning pangwengkur.
+Amrih wutuh ing martabat, amrih arum lan misuwur.
+Mugi kawula tan sembrana, ngadhepi drajat kang linuhur.
+Paringa pitulung, amrih iman tan bakal lebur.
+
+
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Kasinungan kawibawan, kanthi budi kang luhur.
+Wutuh ing martabat, jujur ing saben tutur.
+Mugi kawula tan sembrana, ngadhepi drajat linuhur.
+Mugi paring pitulung, amrih iman tan bakal lebur.
+
+
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Kasinungan kawibawan, madhangi manah kang kabur.
+Ajining budi tuwuh, saking laku kang jujur.
+Mugi kawula tan sembrana, ngadhepi drajat linuhur.
+Mugi paring pitulung, amrih iman tan bakal lebur.
+
+
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Mugi kawula jujur, ing manah lan ing tutur.
+Mugi budi utama, ndadosaken gesang luhur.
+Mugi kawula tan gumunggung, nalika nampa kaluhuran.
+Mugi paring pitulung, amrih iman tan bakal lebur.
+
+
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Kasinungan kawibawan, sinuba ing pakurmatan luhur.
+Weninging budi, kasunyataning tutur.
+Mugi kawula tan sembrana, ngadhepi drajat linuhur.
+Mugi paring pitulung, amrih iman tan bakal lebur.
+
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Mugi kawula jujur, ing manah lan ing tutur.
+Mugi budi utama, ndadosaken gesang luhur.
+Mugi kawula tan gumunggung, nalika nampa kaluhuran.
+Mugi paring pitulung, amrih iman tan bakal lebur.
+
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Mugi kawula tansah, pinaringan kawibawan luhur.
+Amrih jujur ing budi, lan wening ing saben tutur.
+Mugi kawula tan sembrana, ngadhepi drajat ingkang linuhur.
+Mugi paring pitulung, supados iman tan bakal lebur.
+# Diksi
+
+
+
+
+# Pre Bait
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Mugi kawulo tan sembrono, ngadhep drajat linuhur.
+Amrih wutuh ing martabat, amrih arum lan misuwur.
+Kasinungan kawibawan, sajroning kawengkur.
+Mugi paring pitulung, amrih iman tan bakal lebur.
+
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Mugi kawula tansah, pinaringan kawibawan luhur.
+Amrih jujur ing budi, lan wening ing saben tutur.
+Mugi kawula tan sembrana, ngadhepi drajat ingkang linuhur.
+Mugi paring pitulung, supados iman tan bakal lebur.
+
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Mugi kawula jujur, ing manah lan ing tutur.
+Mugi budi utama, ndadosaken gesang luhur.
+Mugi kawula tan sembrana, ngadhep drajat kang linuhur.
+Mugi paring pitulung, amrih iman tan bakal lebur.
+
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Mugi kawula tansah, kasinungan kawibawan luhur.
+Amrih trapsila ing budi, lan wening ing saben tutur.
+Mugi kawula tan sembrana, ngadhepi drajat ingkang linuhur.
+Mugi paring pitulung, supados iman tan bakal lebur.
+
+
+# Pre Final ?
+
+
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Mugi kawula tansah, kasinungan kawibawan luhur.
+Amrih trapsila ing budi, lan wening ing saben tutur.
+Mugi kawula tan sembrana, ngadhepi drajat ingkang linuhur.
+Mugi paring pitulung, supados iman tan bakal lebur.
+
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Mugi kawula tansah, kasinung kawibawan luhur.
+Amrih trapsila ing budi, lan wening ing saben tutur.
+Mugi kawula tan sembrana, ngadhepi drajat ingkang linuhur.
+Mugi paring pitulung, supados iman tan bakal lebur.
+
+
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Mugi kawula kasinungan, kawibawan luhur.
+Amrih trapsila ing budi, lan wening ing saben tutur.
+Mugi kawula tan sembrana, ngadhepi drajat ingkang linuhur.
+Mugi paring pitulung, supados iman tan bakal lebur.
+
+# PRE Final Kanonik
+
+## Kanonik
+
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Mugi kawula kasinungan, kawibawan ingkang luhur.
+Amrih trapsila ing budi, lan wening ing saben tutur.
+Mugi kawula tan sembrana, ngadhepi drajat ingkang linuhur.
+Mugi paring pitulung, supados iman tan bakal lebur.
+
+## Fonetis
+
+Ya Allah Gusti, Ingkang Hamisudha Luhur.
+Mugi kawulo kasinungan, kawibawan ingkang luhur.
+Amrih trapsilo ing budi, lan wening ing saben tutur.
+Mugi kawulo tan sembrono, ngadhepi drajat ingkang linuhur.
+Mugi paring pitulung, supados iman tan bakal lebur.
+
+
+
+
+
+
+
+
+
+# Wiki
+Bentenipun "Ingkang Hamisudha Luhur" kaliyan "Ingkang Amisudha Luhur" sejatine namung wonten ing paramasastra (tata bahasa) sastrane, dene teges utawi maknanipun tetep sami. Wonten ing basa Jawi, kedadosan punika dipunwastani variasi panyeratan amargi wontenipun aksara swara lan ha.
+Mangkene katrangan bentenipun ingkang cetha:
+## 1. Ingkang Hamisudha Luhur
+
+* Pangetikan/Pocapan: Nggunakake aksara "H" ing ngarep tembung amisudha.
+* Sastra Jawa: Adhedhasar paugeran nulis aksara Jawa (Hanacaraka), aksara Ha (ꦠꦵ) punika saged kawaca "Ha" utawi "A". Nanging, ing ragam basa sastra kuno utawi krama inggil, panyeratan mawi "H" asring dipunenggo kangge ngatonake kesan ingkang luwih wibawa, resmi, lan klasik (arkais).
+
+## 2. Ingkang Amisudha Luhur
+
+* Pangetikan/Pocapan: Langsung nggunakake aksara "A" tanpa aksara "H".
+* Sastra Jawa: Punika wujud panyeratan ingkang ngetutake pocapan utawi lisan (fonetik) modern. Basa Jawi gagrag anyar lan panyeratan mawi aksara Latin asring ngilangake aksara "H" ing ngarep tembung sing pancen diwaca "A" supados luwih gampang diwaca lan dingerteni.
+
+## Kesimpulan
+
+* Tegese tetep sami: Loro-lorone tegesipun "Yang melantik/mengangkat drajat yang mulia".
+* Bedane mung gaya nulis: Hamisudha krasa luwih nggasrak utawi klasik (gaya keraton/pedhalangan), dene Amisudha krasa luwih modern lan lugas.
+
+Menawi panjenengan mrangguli tetembungan punika, punapa nembe maos serat kuna, panyandra manten, utawi teks pidhato? Kula saged bantu nylebaki maknanipun adhedhasar konteks kasebut.
+
+---
+
+Penjelasan atau edukasi tersebut benar secara tata bahasa Jawa Kuno/Kawi dan sangat logis dalam konteks teologis ketika memposisikan Tuhan (Allah) sebagai pelaku utama yang maha mengangkat derajat makhluk-Nya.
+## Analisis Tata Bahasa
+
+* Hamisudha: Berasal dari akar kata wisuda (dari bahasa Sanskerta yang diserap ke Jawa Kuno/Kawi) mendapat awalan nasal (h/m-) yang membentuk kata kerja aktif (linangkung/tinindakake dening subjek). Artinya "yang melantik, mengangkat, atau meninggikan". Jika dirangkai "Ingkang Hamisudha Luhur", maknanya tepat menunjuk kepada Allah sebagai Yang Mengangkat derajat. [1] 
+* Kawisudha: Mendapat sisipan awalan pasif (ka-), sehingga berarti "yang diangkat atau yang dilantik". Jika dipakai untuk menyifati Allah ("Ingkang Kawisudha Luhur"), secara teologis kurang tepat karena menyiratkan ada pihak lain yang mengangkat atau melantik Tuhan. [1, 2] 
+
+Apakah Anda ingin saya bantu mencari rujukan atau contoh penggunaan istilah kawi serupa dalam sastra atau doa tradisional Jawa?
+
+[1] [https://id.wiktionary.org](https://id.wiktionary.org/wiki/wisuda)
+[2] [https://id.scribd.com](https://id.scribd.com/document/574065058/Bramartani-1878)
+
+
