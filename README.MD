@@ -109,3 +109,20 @@ geguritan/
 Struktur tersebut menunjukkan **cakupan**, bukan berarti setiap direktori di atas memiliki status hukum yang sama.
 
 Untuk perubahan atau penambahan wilayah yang menggunakan Lisensi Syair Bebas Mutlak, `Repository Licensing Notice.md` dan `LICENSE.md` pada wilayah tersebut harus diperbarui secara bersamaan.
+
+---
+
+## 🤝 Kontribusi
+Kritik, saran, dan koreksi sangat terbuka. Silakan buat **Pull Request** atau buka **Issue**.
+
+---
+
+## 🔗 Tautan Resmi
+
+| Kategori | Platform | Tautan |
+| :--- | :--- | :--- |
+| **Kreator** | TikTok | [@sayektiandra](https://www.tiktok.com/@sayektiandra) |
+| **Kreator** | Instagram | [@sayektiandra](https://www.instagram.com/sayektiandra) |
+| **Kreator** | Facebook Page | [Sayekti Andra](https://www.facebook.com/sayektiandra) |
+| **Personal** | Facebook | [Andra Eka](https://www.facebook.com/andraekaaa) |
+| **Dukungan** | Trakteer | [Dukung via Trakteer](https://trakteer.id/sayektiandra/tip) |
