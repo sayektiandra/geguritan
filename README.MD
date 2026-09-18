@@ -40,7 +40,7 @@ Kritik, saran, dan koreksi sangat terbuka. Silakan buat **Pull Request** atau bu
 
 ---
 
-## Tautan Resmi
+## Social Media
 
 | Kategori | Platform | Tautan |
 | :--- | :--- | :--- |
@@ -48,5 +48,6 @@ Kritik, saran, dan koreksi sangat terbuka. Silakan buat **Pull Request** atau bu
 | **Kreator** | Instagram | [@sayektiandra](https://www.instagram.com/sayektiandra) |
 | **Kreator** | Facebook Page | [Sayekti Andra](https://www.facebook.com/sayektiandra) |
 | **Personal** | Facebook | [Andra Eka](https://www.facebook.com/andraekaaa) |
+
 ## Dukungan / Donasi
 | **Dukungan** | Trakteer | [Dukung via Trakteer](https://trakteer.id/sayektiandra/tip) |
