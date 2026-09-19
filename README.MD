@@ -56,4 +56,5 @@ Kritik, saran, dan koreksi sangat terbuka. Silakan buat **Pull Request** atau bu
 | Platform | Tautan |
 | :--- | :--- |
 | **Trakteer** | [Dukung via Trakteer](https://trakteer.id/sayektiandra/tip) |
+| **Saweria** | [Dukung via Saweria](https://saweria.co/sayektiandra) |
 | **Sociabuzz** | [Dukung via Sociabuzz](https://sociabuzz.com/sayektiandra/support) |
