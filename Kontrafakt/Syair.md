@@ -7,7 +7,7 @@
 وَوَسِّعْ لَنَا رِزْقًا حَلَالًا ، وَتُبْ عَلَيْنَا تَوْبَةً نَصُوْحًا
 
 astaghfirullah robbal baroya, astaghfirullah minal khothoya   
-Robbana zidna 'ilman nafi'an, wawafiqna 'amalan sholihan... 'amalan maqbulan...   
+Robbana zidna 'ilman nafi'an, wawafiq lana 'amalan sholihan... 'amalan maqbulan...   
 
 `Wawassi' lana rizqon halalan, watub 'alaina taubatan nasuha`   
 

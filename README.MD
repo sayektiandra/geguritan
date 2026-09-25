@@ -21,6 +21,11 @@
 > Jika Anda hendak menggunakan, menerbitkan, menjual, atau mengomersialkan **karya yang berada dalam cakupan Lisensi Syair Bebas Mutlak**, baik dalam bentuk fisik, digital, berbayar, berlangganan, maupun bentuk komersial lainnya, **harap baca `LICENSE.md` yang berlaku pada karya atau direktori tersebut terlebih dahulu** agar penggunaan dan karya turunannya tetap sesuai dengan ketentuan kebebasan lisensi ini.
 
 ---
+## Singkatnya
+
+Karya ini bebas kamu gunakan kembali, asalkan tidak didaftarkan ke Content ID atau sistem hak cipta mana pun agar tetap bisa dinikmati bersama. Kami juga selalu terbuka dengan kritik dan saran, khususnya untuk koreksi Syair.
+
+---
 
 ## Tentang Repository Ini
 
