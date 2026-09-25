@@ -1,75 +1,75 @@
-# Bank Diksi
-Status: Living Document
+# Bank Diksi  
+Status: Living Document  
 
----
+---  
 
-# Allah
+# Allah  
 
-| Makna | Diksi |
-|-------|-------|
-| Allah | Allah |
-| Tuhan | Gusti |
-| Paduka Allah | Paduka |
-| Dzat Yang Maha Suci | Kang Maha Suci |
+| Makna | Diksi |  
+|-------|-------|  
+| Allah | Allah |  
+| Tuhan | Gusti |  
+| Paduka Allah | Paduka |  
+| Dzat Yang Maha Suci | Kang Maha Suci |  
 
----
+---  
 
-# Manusia
+# Manusia  
 
-| Makna | Diksi |
-|-------|-------|
-| manusia | titah |
-| hamba | kawula |
-| kami | kawula |
-| seluruh manusia | umat |
-| seluruh kami | kawula sedaya |
+| Makna | Diksi |  
+|-------|-------|  
+| manusia | titah |  
+| hamba | kawula |  
+| kami | kawula |  
+| seluruh manusia | umat |  
+| seluruh kami | kawula sedaya |  
 
----
+---  
 
-# Hati
+# Hati  
 
-| Makna | Diksi |
-|-------|-------|
-| hati | manah |
-| batin | batin |
-| hati terdalam | penggalih |
+| Makna | Diksi |  
+|-------|-------|  
+| hati | manah |  
+| batin | batin |  
+| hati terdalam | penggalih |  
 
----
+---  
 
-# Dunia
+# Dunia  
 
-| Makna | Diksi |
-|-------|-------|
-| dunia | bawana |
-| alam | jagad |
-| kehidupan | bebrayan |
+| Makna | Diksi |  
+|-------|-------|  
+| dunia | bawana |  
+| alam | jagad |  
+| kehidupan | bebrayan |  
 
----
+---  
 
-# Cahaya
+# Cahaya  
 
-| Makna | Diksi |
-|-------|-------|
-| cahaya | pepadhang |
-| petunjuk | pitedah |
-| hidayah | hidayah |
+| Makna | Diksi |  
+|-------|-------|  
+| cahaya | pepadhang |  
+| petunjuk | pitedah |  
+| hidayah | hidayah |  
 
----
+---  
 
-# Ampunan
+# Ampunan  
 
-| Makna | Diksi |
-|-------|-------|
-| ampun | pangaksama |
-| taubat | taubat |
-| rahmat | rahmat |
-| berkah | berkah |
+| Makna | Diksi |  
+|-------|-------|  
+| ampun | pangaksama |  
+| taubat | taubat |  
+| rahmat | rahmat |  
+| berkah | berkah |  
 
----
+---  
 
-# Perumpamaan
+# Perumpamaan  
 
-| Makna | Diksi |
-|-------|-------|
-| pasir dunia | wedhi ing bawana |
-| isi hati manusia | manahing titah |
+| Makna | Diksi |  
+|-------|-------|  
+| pasir dunia | wedhi ing bawana |  
+| isi hati manusia | manahing titah |  

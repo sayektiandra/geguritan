@@ -1,3 +1,3 @@
-Maha Mahambara
+Maha Mahambara  
 
-Ya Allah Gusti, Ingkang Maha Murda.
+Ya Allah Gusti, Ingkang Maha Murda.  

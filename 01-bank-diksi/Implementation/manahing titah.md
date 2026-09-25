@@ -1,23 +1,23 @@
-## manahing titah
+## manahing titah  
 
-Makna
-: Hati seluruh makhluk ciptaan Allah.
+Makna  
+: Hati seluruh makhluk ciptaan Allah.  
 
-Status
-: Approved
+Status  
+: Approved  
 
-Kelas
-: Sastra Tinggi
+Kelas  
+: Sastra Tinggi  
 
-Nuansa
-: Puitis
+Nuansa  
+: Puitis  
 
-Digunakan Pada
-: Al-Hadi
+Digunakan Pada  
+: Al-Hadi  
 
-Alternatif
-- penggalihing titah
-- manah kawula
+Alternatif  
+- penggalihing titah  
+- manah kawula  
 
-Catatan
-Sangat baik digunakan untuk menggambarkan Allah mengetahui isi hati seluruh makhluk.
+Catatan  
+Sangat baik digunakan untuk menggambarkan Allah mengetahui isi hati seluruh makhluk.  

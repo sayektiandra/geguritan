@@ -1,1 +1,1 @@
-https://kbji.kemendikdasmen.go.id/kata/weleh
+https://kbji.kemendikdasmen.go.id/kata/weleh  

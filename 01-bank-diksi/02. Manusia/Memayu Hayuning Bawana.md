@@ -1,1 +1,1 @@
-Memayu Hayuning BawanaKewajiban manusia selama hidup di dunia untuk menjaga, memperindah, dan memakmurkan bumi. Hidup harus selaras dengan alam, menjaga kedamaian sosial, dan tidak melakukan kerusakan (merusak tatanan).
+Memayu Hayuning BawanaKewajiban manusia selama hidup di dunia untuk menjaga, memperindah, dan memakmurkan bumi. Hidup harus selaras dengan alam, menjaga kedamaian sosial, dan tidak melakukan kerusakan (merusak tatanan).  

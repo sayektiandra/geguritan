@@ -1,1 +1,1 @@
-https://kbji.kemendikdasmen.go.id/kata/kelonggaran
+https://kbji.kemendikdasmen.go.id/kata/kelonggaran  

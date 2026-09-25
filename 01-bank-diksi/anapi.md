@@ -1,1 +1,1 @@
-https://kbji.kemendikdasmen.go.id/kata/tetapi
+https://kbji.kemendikdasmen.go.id/kata/tetapi  

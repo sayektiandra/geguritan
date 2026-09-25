@@ -1,1 +1,1 @@
-Jangan takut merajut esoragoto, sebab dari rahim angan yang dianggap mustahil itulah, sebuah dunia baru dilahirkan.
+Jangan takut merajut esoragoto, sebab dari rahim angan yang dianggap mustahil itulah, sebuah dunia baru dilahirkan.  

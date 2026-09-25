@@ -1,2 +1,2 @@
-Baris 1: "Ingkang Hancabut Kamulyan"
-Koreksi: Dalam gramatika sastra Jawa tinggi (Ater-ater anuswara han-), jika kata dasarnya adalah cabut, maka peluluhannya menjadi Hanyabut, bukan Hancabut. Jika ingin tetap mempertahankan aksara "C", kata dasar yang bisa dipakai adalah chabut (Kawi) menjadi Hancambut, namun ini kurang lazim di telinga masyarakat modern. ini bener kah?
+Baris 1: "Ingkang Hancabut Kamulyan"  
+Koreksi: Dalam gramatika sastra Jawa tinggi (Ater-ater anuswara han-), jika kata dasarnya adalah cabut, maka peluluhannya menjadi Hanyabut, bukan Hancabut. Jika ingin tetap mempertahankan aksara "C", kata dasar yang bisa dipakai adalah chabut (Kawi) menjadi Hancambut, namun ini kurang lazim di telinga masyarakat modern. ini bener kah?  

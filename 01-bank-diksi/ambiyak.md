@@ -1,1 +1,1 @@
-Ambiyak (Ngambiyak): Berarti menyibak, membuka lebar-lebar dengan kedua tangan (seperti menyibak tirai, semak-semak, atau pembatas).
+Ambiyak (Ngambiyak): Berarti menyibak, membuka lebar-lebar dengan kedua tangan (seperti menyibak tirai, semak-semak, atau pembatas).  

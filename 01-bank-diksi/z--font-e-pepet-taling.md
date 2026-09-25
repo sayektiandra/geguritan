@@ -1,1 +1,1 @@
-ê (E Pepet) → Contoh: bêgja, amrêta, sêdaya.é (E Taling Terbuka) → Contoh: lélé, saté, soré.è (E Taling Tertutup) → Contoh: bèbèk, gègèr, èmper.
+ê (E Pepet) → Contoh: bêgja, amrêta, sêdaya.é (E Taling Terbuka) → Contoh: lélé, saté, soré.è (E Taling Tertutup) → Contoh: bèbèk, gègèr, èmper.  

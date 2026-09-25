@@ -1,11 +1,11 @@
-# Maha Welas Asih
+# Maha Welas Asih  
 
-Status
-: Canon
+Status  
+: Canon  
 
-Makna
-: Representasi sifat Ar-Raḥīm.
+Makna  
+: Representasi sifat Ar-Raḥīm.  
 
-Contoh
+Contoh  
 
-Ya Allah Gusti, ingkang Maha Welas Asih.
+Ya Allah Gusti, ingkang Maha Welas Asih.  

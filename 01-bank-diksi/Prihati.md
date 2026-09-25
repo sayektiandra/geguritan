@@ -1,1 +1,1 @@
-Kata "prihati" sebenarnya adalah variasi puitis atau bentuk potong (wancahan) dari kata "prihatin" (ꦥꦿꦶꦲꦠꦶꦤ꧀) dalam bahasa Jawa Sastra. Pujangga Jawa sering memotong huruf terakhir "n" untuk menyesuaikan rima, ketukan, atau demi estetika bunyi naskah.
+Kata "prihati" sebenarnya adalah variasi puitis atau bentuk potong (wancahan) dari kata "prihatin" (ꦥꦿꦶꦲꦠꦶꦤ꧀) dalam bahasa Jawa Sastra. Pujangga Jawa sering memotong huruf terakhir "n" untuk menyesuaikan rima, ketukan, atau demi estetika bunyi naskah.  

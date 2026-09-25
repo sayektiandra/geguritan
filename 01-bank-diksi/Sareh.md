@@ -1,1 +1,1 @@
-https://kbji.kemendikdasmen.go.id/kata/sareh
+https://kbji.kemendikdasmen.go.id/kata/sareh  
