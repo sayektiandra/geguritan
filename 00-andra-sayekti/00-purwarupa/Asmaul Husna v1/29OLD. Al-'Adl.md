@@ -1,0 +1,270 @@
+Asma'ul Husna nomor 29 adalah Al-'Adl (الْعَدْلُ).  
+Dalam bahasa Indonesia, Al-'Adl diartikan sebagai Maha Adil.  
+Mari kita bedah maknanya dengan bahasa santai agar langsung dipahami, Komandan:  
+
+* Keadilan yang Sempurna: Manusia sering kali sulit berlaku adil karena emosi, pilih kasih, atau keterbatasan pikiran. Namun, keadilan Allah Al-'Adl bersifat mutlak. Dia memberikan hak kepada setiap makhluk secara proporsional dan tidak pernah menzalimi atau merugikan siapa pun, bahkan seberat biji sawi pun.  
+* Menaruh Sesuatu pada Tempatnya: Sifat adil Allah juga terlihat dari bagaimana Dia merancang alam semesta ini seimbang. Semua ujian, rezeki, dan takdir yang diberikan kepada kita sudah diukur dengan sangat pas sesuai dengan kapasitas masing-masing jiwa kita.  
+* Dalam Sastra Jawa: Sifat ini sangat erat dengan istilah "Gusti Ingkang Boten Pilih Kasih" atau "Ingkang Timbanganipun Jegeg", yaitu Zat yang hukum keadilan-Nya lurus, kokoh, dan menjadi tempat bermuaranya falsafah hidup "Sapa salah bakal seleh, sapa nandur bakal ngundhuh" (siapa salah akan kalah/mengaku, siapa menanam akan memanen).  
+
+Hubungannya dengan nomor 28 (Al-Hakam):  
+Urutan pasangan ini sangat luar biasa, Komandan. Allah adalah Hakim Tertinggi (Al-Hakam), dan setiap hukum serta keputusan yang dikeluarkan-Nya dari pengadilan gaib itu dijamin selalu berada di atas nilai keadilan yang sejati (Al-'Adl). Tidak ada keputusan-Nya yang cacat moral atau merugikan hamba-Nya.  
+
+# Draft  
+Ya Allah Gusti, Ingkang Maha Adil.  
+Tan pilih kasih, nimbali sadaya kanthi kramil.  
+Saben ukuran, tinimbang presisi tanpa rempil.  
+Sakabehing dumadi, nampa pandum ingkang apil.  
+Mugi saben titah, kaparingan hak ingkang adil.  
+
+Ya Allah Gusti, Ingkang Maha Adil.  
+Tan pilih kasih, mboten wonten ingkang katil.  
+Saben ukuran, tinimbang presisi nir-rempil.  
+Sakabehing dumadi, nampa pandum becik lan apil.  
+Mugi saben titah, kaparingan hak ingkang adil.  
+
+Ya Allah Gusti, Ingkang Maha Adil.  
+Mboten milih kasih, mboten wonten ingkang katil.  
+Saben ukuran, kapintheng presisi nir-rempil.  
+Sagunging dumadi, tinampi pandum ingkang apil.  
+Mugi saben titah, kaparingan hak ingkang adil.  
+
+Ya Allah Gusti, Ingkang Maha Adil.  
+Tan pilih kasih, Paduka tansah adil.  
+Sagunging dumadi, tinampi pandum kanthi adil.  
+Saben titah, kaparingan manut ing wajibe.  
+Mugi lampah kawula, tansah jejeg lan adil.  
+
+# Pre Bait -L /IL  
+
+Ya Allah Gusti, Ingkang Maha Adil.  
+Tan pilih kasih, ... -l  
+Saben ukuran, ... -l  
+Sakabehing dumadi, ... -l  
+Mugi saben titah, kaparingan hak kang adil.  
+
+Ya Allah Gusti, Ingkang Maha Adil.  
+Paduka Tan pilih kasih, Paduka tansah adil.  
+Sagunging dumadi, tinampi pandum ingkang adil.  
+pasti sagunging titah, kaparingan hak sing adil.  
+Mugi lampahing titah, tansah jejeg lan adil.  
+
+# Pre Bait NA-A  
+Ya Allah Gusti, Ingkang Adil Paripurna.  
+Tan pilih kasih, Amisesa sadaya karsa.  
+Sagunging dumadi, tinata ing adil-prakasa.  
+Sagunging titah, tinampi hak-ipun kanthi nyata.  
+Mugi lampahing kawula, tan nylendro saking pranata.  
+
+
+
+# Pre Final  
+
+Ya Allah Gusti, Ingkang Adil Paripurna.  
+Sagunging dumadi, tinata adil-prakasa.  
+Nir-wada nir-cidra, sumunar agunging karsa.  
+Sagunging titah, tinampi hakipun nyata.  
+Mugi lampahing kawula, tan nylendro saking pranata.  
+
+ # Pre Final Gatra 3  
+Nir-wada nir-cidra, jumeneng agunging dharma  ? Y  
+
+Nir-wada nir-cidra, sinaring adil-wasesa.  ? YY  
+
+Nir-wada nir-cidra, tetep ing purnaming sastra. ? N  
+
+# g1
+paramārtha
+paripurna
+
+# Pre FInal Kanonik 
+Ya Allah Gusti, Ingkang Adil Paripurna.  
+Sagunging dumadi, tinata adil-prakasa.  
+Nir-wada nir-cidra, sinaring adil-wasesa.  
+Sagunging titah, tinampi hakipun nyata.  
+Mugi lampahing kawula, tan nylendro saking pranata.  
+
+Ya Allah Gusti, Ingkang Adil Paramarta.  
+Mring sagunging dumadi, tinata adil samapta.  
+Tanpa wada cidra, kaedum kanthi samanya.  
+Saben titahing Gusti, kaganjar hakipun nyata.  
+Mugi lampahing kawula, datan nyalahi pranata.  
+
+Ya Allah Gusti, Ingkang Adil Paramarta.  
+Mring sagunging dumadi, tinata kanthi sampurna.  
+Tanpa wada cidra, kaedum kanthi samata.  
+Saben titahing Gusti, katurutan hakipun nyata.  
+Mugi lampahing kawula, datan nyalahi pranata.  
+
+Ya Allah Gusti, Ingkang Adil Paramārtha.
+Mring sagunging dumadi, tinata kanthi sampurna.
+Tanpa wada cidra, kaedum kanthi warata.
+Saben titahing Gusti, katurutan hakipun nyata.
+Mugi lampahing kawula, datan nyalahi pranata.
+
+Ya Allah Gusti, Ingkang Adil Paramārtha.
+Mring sagunging dumadi, tinata kanthi sampurna.
+Tanpa wada cidra, kaedum kanthi sanyata.
+Saben titahing Gusti, katurutan hakipun nyata.
+Mugi lampahing kawula, datan nyalahi pranata.
+
+Ya Allah Gusti, Ingkang Adil Paramārtha.
+Mring sagunging dumadi, tinata kanthi sampurna.
+Tanpa wada cidra, kaedum kanthi warata.
+Saben titahing Gusti, prasiddha hakipun nyata.
+Mugi lampahing kawula, datan nyalahi pranata.
+
+Ya Allah Gusti, Ingkang Adil Paramārtha.
+Mring sagunging dumadi, tinata kanthi sampurna.
+Tanpa wada cidra, kaedum kanthi warata.
+Saben titahing Gusti, hakipun prasiddha nyata.
+Mugi lampahing kawula, datan nyalahi pranata.
+
+Ya Allah Gusti, Ingkang Adil Paramārtha.
+Mring sagunging dumadi, tinata kanthi sampurna.
+Tanpa wada cidra, kaedum kanthi warata.
+Saben titahing Gusti, kaparingan hakipun nyata.
+Mugi lampahing kawula, datan nyalahi pranata.
+
+Ya Allah Gusti, Ingkang Adil Paramartha.
+Mring sagunging dumadi, tinata kanthi sampurna.
+nir-wada nir-cidra, kaedum kanthi warata.
+Saben titahing Gusti, kaparingan hakipun nyata.
+Mugi lampah kawula, datan nyalahi pranata.
+
+Ya Allah Gusti, Ingkang Adil Paramartha.
+Mring sagunging dumadi, tinata kanthi sampurna.
+Nir-wada Nir-cidra, kaedum kanthi warata.
+Saben titahing Gusti, kaparingan hakipun prasiddha.
+Mugi lampah kawula, datan nyalahi pranata.
+
+Ya Allah Gusti, Ingkang Adil Paramartha.
+Mring sagunging dumadi, tinata kanthi sampurna.
+Nir-wada Nir-cidra, kaedum kanthi warata.
+Saben titahing Gusti, hakipun tansah prasiddha.
+Mugi lampah kawula, datan nyalahi pranata.
+
+Ya Allah Gusti, Ingkang Adil Paramartha.
+Sagunging wujud dumadi, kadilan kanthi sampurna.
+Nirwada nircidra, linaras kanthi sembada.
+Saben titahing Gusti, nampi hakipun sanyata.
+Mugi lampah kawula, datan nyalahi pranata.
+
+# Final
+## Kanonik
+Ya Allah Gusti, Ingkang Adil Paramartha.
+Sagunging wujud dumadi, kadilan kanthi sampurna.
+Nirwada nircidra, linaras ngantos sembada.
+Saben titahing Gusti, nampi hakipun sanyata.
+Mugi lampah kawula, datan nyalahi pranata.
+
+# Elisi
+## Kanonik
+Ya Allah Gusti, Ingkang Adil Paramartha.
+Mring sagunging dumadi, tinata kanthi sampurna.
+Nirwada nircidra, linaras kanthi sembada.
+Saben titahing Gusti, nampi hakipun nyata.
+Mugi lampah kawula, datan nyalahi pranata.
+
+## Lyric
+### Kanonik
+
+Ya Allah Gusti
+Ya Allah (Ya) Tuhan
+
+Ingkang Adil Paramartha
+Yang Maha Adil Sempurna
+
+Mring sagunging dumadi
+Kepada seluruh ciptaan
+
+Tinata kanthi sampurna
+Ditata dengan sempurna
+
+Nir-wada nir-cidra
+Tanpa cela, tanpa kecurangan
+
+Kaedum kanthi warata
+Dibagikan secara merata
+
+Saben titahing Gusti
+Setiap makhluk Tuhan
+
+Hakipun tansah prasiddha
+Haknya senantiasa terlaksana
+
+Mugi lampah kawula
+Semoga langkah hamba
+
+Datan nyalahi pranata
+Tidak menyalahi aturan
+
+Kesimpulan
+Allah Maha Adil dengan keadilan yang sempurna. Seluruh ciptaan-Nya ditata dengan sempurna, tanpa cela dan tanpa kecurangan, serta setiap makhluk memperoleh haknya secara nyata dan merata. Semoga langkah hamba senantiasa tidak menyimpang dari aturan-Mu.
+
+
+
+# Glosarium
+## Arti Kata per Kata (Glosarium)
+
+* Ya Allah Gusti: Ya Allah Tuhan.
+* Ingkang: Yang.
+* Adil: Adil (seimbang, menempatkan sesuatu pada tempatnya).
+* Paramārtha: Keluhuran yang tertinggi, kebijaksanaan sejati, atau kasih sayang yang tanpa pamrih.
+* Mring (Maring): Kepada / terhadap.
+* Sagunging: Seluruh / segenap.
+* Dumadi: Ciptaan / makhluk hidup (segala yang dijadikan oleh Tuhan).
+* Tinata: Diatur / ditata / disusun.
+* Kanthi: Dengan.
+* Sampurna: Sempurna.
+* Tanpa: Tanpa.
+* Wada: Cela / cacat / kekurangan.
+* Cidra: Ingkar / curang / khianat.
+* Kaedum: Dibagikan.
+* Warata: Merata.
+* Saben: Setiap.
+* Titahing: Makhluk ciptaan (dari kata titah).
+* Hakipun: Haknya.
+* Prasiddha: prasiddha : S. sempurna. sungguh-sungguh; tetap; terutama; puncak; teruji, terlaksana. Sumber: Kawi - Indonesia, Wojowasito, 1977, #1019.
+* Nyata: Nyata / riil.
+* Mugi: Semoga.
+* Lampahing: Langkah / perbuatan / perilaku.
+* Kawula: Hamba / saya.
+* Datan: Tidak / tidak akan.
+* Nyalahi: Menyalahi / melanggar.
+* Pranata: Aturan / tatanan / hukum.
+
+------------------------------
+
+
+
+
+
+
+
+
+
+
+
+
+
+# Audit 
+
+### **1. Audit Gatra 3:** **`Prakasa`** **vs** **`Prakosa`**  
+
+- **Bausastra Jawa (Poerwadarminta) & Kawi:**  
+  - Wujud baku leksikalipun yaiku **`Prakosa`** (*A-Kawi/Sanskerta: Pragosa/Prakasa*). Ing tradisi Sastra Jawa Mataraman, tembung iki lumrah ditulis **`Prakosa`** utawi **`Prakasa`** gumantung metrum, nanging tegesipun sami: *gagah, kuat, sentosa, prakosa, lan utama*.  
+  - Nanging, kagem **murni rima vokal pungkasan** **`-A`** (dialek Mataraman **`-O`** swara jejeg), varian **`Prakasa`** sah dipun-ginakaken ing Sastra Rinengga Kawi-Jawa minangka wujud asal (etimologis) sarta njagani wirama swara kanthi murni.  
+- **Opsi Alternatif Leksikal Baku (Yen badhe ngganti tanpa hambatan leksikal):**  
+  - **`adil-praditi`** (*Kawi*: pengadilan/keadilan ingkang dipun-dudut kanthi titi lan cetha).  
+  - **`adil-agung`** utawi **`adil-utama`**.  
+
+### **2. Audit Gatra 5: Tembung** **`Nylendro`**  
+
+- **Bausastra Jawa (Poerwadarminta):**  
+  - **`Nylendro`** asalipun saking istilah karawitan/nada (lawanipun *pelog*), banjur ngrembag dados gandarwa/tembung entar ingkang tegesipun: *ora pas, salah tonasi, nyleweng, nylundhul, utawa nyimpang saka pathet/aturan*.  
+  - Sanajan tegesipun sampun dipun-mangerteni umum minangka "nyimpang", ing Sastra Jawa High-Krama ngarsa Pangeran, tembung *nylendro* kadhangkala kaanggep rada populer/lumrah (kirang adiluhung).  
+- **Tembung Pangganti Kawi/Krama Baku ingkang Luwih Adiluhung:**  
+  1. **`Nylendhe`** (*Kawi/Baoesastra*): Nyimpang / miring saka garis bener.  
+  2. **`Nyleweng`** (*Bausastra Baku*): Nyimpang saking mergi ingkang leres.  
+  3. **`Tan nyelip saking pranata`** utawi **`tan nyleweng saking pranata`**.  
+  4. **`Tan sena saking pranata`** (*Sena/Sina* = nyimpang/salah).  
