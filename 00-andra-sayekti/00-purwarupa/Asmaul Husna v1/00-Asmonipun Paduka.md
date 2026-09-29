@@ -190,6 +190,18 @@ Jagad kang gumelar, dados saksi kaluhuran.
 Pujineng kawulo, winates panembahan.    
 Pujineng manungso, tan cekap dados pamudyan.  
 
+Ya Allah Gusti, ingkang tanpo tandhingan.    
+Asmonipun Paduko, ngungkuli kaendahan.  
+Jagad kang gumelar, dados saksi kaluhuran.    
+Pujineng kawulo, winates pangalembanan.    
+Pujineng manungso, tan cekap dados pamudyan.  
+
+Ya Allah Gusti, ingkang tanpo tandhingan.    
+Asmonipun Pangeran, ngungkuli kaendahan.  
+Jagad kang (rima-N), dados saksi kaluhuran.    
+Pujineng kawulan, winates pangalembanan.    
+Pujineng manungsan, tan cekap dados pamudyan.  
+
 # Pre Bait 2  
 
 Ya Allah Gusti, Ingkang Moho Kuoso.  

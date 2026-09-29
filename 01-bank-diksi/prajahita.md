@@ -1,0 +1,1 @@
+prajāhita : S. baik untuk makhluk. Sumber: Kawi - Indonesia, Wojowasito, 1977, #1019.
