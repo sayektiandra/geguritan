@@ -1,0 +1,1 @@
+https://www.kompasiana.com/albert911/669bd519c925c4517a3f4a23/dialektika-jagat-gumelar-dan-jagat-gumulung-dalam-budaya-jawa

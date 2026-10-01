@@ -291,3 +291,9 @@ Asmanipun Paduka, nitahaken jagad puniki.
 Rinancang sampurna, nir-bahan nir-piranti.  
 Kinarya panyeksi, kaendahan tanpa tepi.  
 Sagunging dumadi, gumelar amancawarni.  
+
+Ya Allah Gusti, Ingkang Maha Kuwasa,
+Murbeng saindhenging bhuwana, jagatpramana ingkang parama,
+Anupama anaupamya , atiśāra atiwiśāla
+Acintya atyanta, ananta aparimita
+Uttungga Agung-Ira, Atyasa ing prabawa 
