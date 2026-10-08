@@ -16,3 +16,6 @@ takarir leksikon ukuran 25, bold, italic
 terjemahan leksikon penuh ukuran 20
 #b4b4b4
 
+panambangkan
+-Ira
+#8FD3FF
