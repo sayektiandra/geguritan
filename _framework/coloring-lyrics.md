@@ -10,6 +10,11 @@
 | **Kata `[ ]` dalam terjemahan lapis ketiga**        | **`#E6B84A`** |  24 pt | *Italic* |  
 
 
+
+---
+jarak antar bari 0
+jarak antar huruf 1.28
+
 takarir leksikon ukuran 25, bold, italic
 #d9d9d9
 
